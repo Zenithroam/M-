@@ -24,4 +24,4 @@ Wondering how to **w𝚊𝚝𝚌𝚑 M𝚞𝚏𝚊𝚜𝚊: The Lion King 𝚘�
 
 Get ready to embark on a magical journey with M𝚞𝚏𝚊𝚜𝚊 and relive the epic adventures of the P𝚛𝚒𝚍𝚎 L𝚊𝚗𝚍𝚜.
 
-**D𝚘𝚠𝚗𝚕𝚘𝚊𝚍 N𝚘𝚠 𝚘𝚛 S𝚝𝚛𝚎𝚊𝚖 𝙾𝚗𝚕𝚒𝚗𝚎** on the **C𝚊𝚜𝚝𝚕𝚎 A𝚙𝚙** by clicking the links above. Don't miss out on experiencing this cinematic masterpiece.
+**D𝚘𝚠𝚗𝚕𝚘𝚊𝚍 N𝚘𝚠 𝚘𝚛 S𝚝𝚛𝚎𝚊𝚖 𝙾𝚗𝚕𝚒𝚗𝚎** by clicking the links above. Don't miss out on experiencing this cinematic masterpiece.
